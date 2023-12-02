@@ -4,8 +4,8 @@ Project topic- Early detection is crucial for effective treatment and improved o
 
 Team Members:
 
-Vishwa Babariya- A 20516499
+Vishwa Babariya
 
-Bhaktiben Kadiya – A 20518731
+Bhaktiben Kadiya 
 
-Shraddha Kadiya – A 20520127 
+Shraddha Kadiya 
